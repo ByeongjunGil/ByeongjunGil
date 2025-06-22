@@ -1,6 +1,6 @@
 Byeongjun Gil
 byeongjungil30@gmail.com
-Byeongjungil30@snu.ac.kr
+byeongjungil30@snu.ac.kr
 bgil@bnl.gov
 +1 631-202-7062
 <!---
