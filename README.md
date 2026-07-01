@@ -13,6 +13,6 @@ My research focuses on:
 - **Email:**  
   - [byeongjungil30@gmail.com](mailto:byeongjungil30@gmail.com)  
   - [byeongjungil30@snu.ac.kr](mailto:byeongjungil30@snu.ac.kr)  
-  - [bgil@bnl.gov](mailto:bgil@bnl.gov)
+  - (inactive at the moment) [bgil@bnl.gov](mailto:bgil@bnl.gov)
 
-- **Phone:** +1 631 202 7062
+- **Phone:** +82 10-5118-4828 (South Korea)
